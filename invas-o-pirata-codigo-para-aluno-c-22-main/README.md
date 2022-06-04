@@ -1,1 +1,0 @@
-# invas-o-pirata-codigo-para-aluno-c-22
